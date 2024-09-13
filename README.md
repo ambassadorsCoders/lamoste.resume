@@ -1,0 +1,1 @@
+# lamoste.resume
